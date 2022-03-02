@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @koubaa938
+- 👀 I’m interested in programming, photography, video editing and media managment
+- 🌱 I’m currently learning some softy skills
+- 💞️ I’m looking to collaborate on a movie
+- 📫 How to reach me ---- +21653933462 | koubaa938@gmail.com | youcifer.raw
